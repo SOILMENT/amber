@@ -1,1 +1,1 @@
-<img alt=https://64.media.tumblr.com/1c19c726f8b20c4cfb89457ab3f4ce5a/4ea5ec8809b3ed14-71/s2048x3072/4db1d2104e2c64855de8434c75ff75cc49a82ba8.pnj<img width="2048" height="380" alt="image" src="https://github.com/user-attachments/assets/1fafbc65-fced-4704-967f-9d3de66c6940" />
+<img width="2048" height="380" alt="image" src="https://github.com/user-attachments/assets/1fafbc65-fced-4704-967f-9d3de66c6940" />
